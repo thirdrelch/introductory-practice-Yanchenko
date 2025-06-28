@@ -26,7 +26,7 @@
 ## Скриншоты
 
 ![Мой репозитороий](https://i.postimg.cc/1tZhY7Xh/photo-2025-06-28-08-44-36.jpg)
-![Моя страничка](https://iimg.su/i/eLaXyv)
+![Моя страничка](https://i.postimg.cc/Jn8vQyYR/photo-2025-06-28-08-44-38.jpg)
 
 ## Заключение
 
